@@ -1,0 +1,1 @@
+mycraft is a social network specially designed for handmade community
